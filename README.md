@@ -5,8 +5,8 @@
 Николай Магер  
 mager.kolka@gmail.com  
 +375 29 627 62 18  
-[GitHub](https://github.com/KolkaMeister)  
-[YouTube](https://www.youtube.com/channel/UCCGBaqozDVrG1fLk4P-8LiA)
+[GitHub https://github.com/KolkaMeister](https://github.com/KolkaMeister)  
+[YouTube https://www.youtube.com/channel/UCCGBaqozDVrG1fLk4P-8LiA](https://www.youtube.com/channel/UCCGBaqozDVrG1fLk4P-8LiA)
 
 ## Опыт
 
